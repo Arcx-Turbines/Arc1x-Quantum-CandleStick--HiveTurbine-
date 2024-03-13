@@ -1,1 +1,1 @@
-# Arc1x-Quantum-CandleStick--HiveTurbine-
+# Arc1x-Quantum-CandleStick-HiveTurbine
